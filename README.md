@@ -1,5 +1,5 @@
 ### Hi there 👋
-![alt text](https://shrt-l.ink/static/images/landing.png)
+![alt text](https://media.discordapp.net/attachments/931890987943469107/963337458571935744/IMG_20220116_093804.jpg?width=447&height=597)
 <!--
 **yanisse-saddek/yanisse-saddek** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
